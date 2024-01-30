@@ -9,4 +9,4 @@ I'm Yvan (or @oziriz31), I write and operate software for a living.
 - Pronouns: he/him
 - Company email: yvan.tech@outlook.com  
 - YouTube: [youtube.com/@yvantech31](https://www.youtube.com/@YvanTech31) 
-- All the handles and things: [yvan.com.com](http://yvanakoo.com/)
+- All the handles and things: [yvanakoo.com](http://yvanakoo.com/)
