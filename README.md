@@ -7,6 +7,6 @@ I'm Yvan (or @oziriz31), I write and operate software for a living.
 
 - Name: Yvan Akoo (oziriz31)
 - Pronouns: he/him
-- Company email: yvan.tech@outlook.com  
+- Company email: yvan.akoo02@outlook.com  
 - YouTube: [youtube.com/@yvantech31](https://www.youtube.com/@YvanTech31) 
 - All the handles and things: [yvanakoo.com](http://yvanakoo.com/)
